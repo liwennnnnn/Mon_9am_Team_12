@@ -1,0 +1,20 @@
+interview1
+
+Transcribed by TurboScribe.ai. Go Unlimited to remove this message.
+
+[Speaker 2]
+Excuse me, I will record this interview. Is that okay?
+
+[Speaker 1]
+Yeah.
+
+[Speaker 2]
+I just ask some quick questions for our project. This interview is only for learning process. Okay.
+
+Can you tell me about any difficulties you faced when trying to make new friends at UQ?
+
+[Speaker 1]
+Yeah, so one problem I often faced when trying to make new friends is figuring out how to keep the conversation flowing naturally. I sometimes struggling with finding common interests, especially when I don't know much about the other person yet. It can make it hard to move past small talk and build a real connection.
+
+[Speaker 2]
+Thank you.
